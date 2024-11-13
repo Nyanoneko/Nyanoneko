@@ -7,3 +7,9 @@ You can either look through my [strawpage](https://edgarfan.straw.page/)... or r
 <br/>
 ╰┈➤ _<ins>FYI<ins>_: I'm weirdly uncomfy with _Ranpo ships_ & _Poe ships_ (other than **PoeRan, NathaPoe, LovePoe**)... don't ask why, _I don't know the answer myself_. **Apologies!** <sub>that's the one and only thing I'm srs very uncomfortable with, lol!</sup>
 <br/>
+<br/>
+<br/>
+![Ranpo mymalewife.](https://static.wikia.nocookie.net/bungostraydogs/images/7/75/Poe_tells_Ranpo_about_Kindaichi%27s_case_%28manga%29.png/revision/latest/scale-to-width-down/1000?cb=20200811083743)
+<br/>
+<br/>
+# PoeRan brainrot...............!
