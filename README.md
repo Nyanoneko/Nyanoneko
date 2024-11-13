@@ -9,7 +9,7 @@ You can either look through my [strawpage](https://edgarfan.straw.page/)... or r
 <br/>
 <br/>
 <br/>
-![Ranpo mymalewife.](https://static.wikia.nocookie.net/bungostraydogs/images/7/75/Poe_tells_Ranpo_about_Kindaichi%27s_case_%28manga%29.png/revision/latest/scale-to-width-down/1000?cb=20200811083743)
+![Ranpo mymalewife.](https://cdn.discordapp.com/attachments/1115694374672662630/1306007377438441592/Untitled2373_20241112222643.png?ex=6735c267&is=673470e7&hm=e41a346f1edbb1d84912a5854067c1ed401d0560fb655cfc157b723006fb3ea8&)
 <br/>
 <br/>
 # PoeRan brainrot...............!
