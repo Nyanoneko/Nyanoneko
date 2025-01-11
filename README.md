@@ -1,5 +1,6 @@
 MY [STRAWPAGE](https://edgarfan.straw.page)!!!
 <br/>
+<br/>
 ⛌ _<ins>DNI<ins>_: basic dni criteria, people below 13, bottom and/or submissive Poe truthers (/hj), shy Poe believers... _unless willing to hear me out on why he's not actually shy_ <br/>
 <br/>
 ⸝⸝⸝ _<ins>PonyTown boundaries<ins>_: C + H is welcome, I have no problem with people taking inspiration from my ponies _(as long as you're not copying it entirely)_. If I don't reply quickly, it means I'm offtab or not looking at my screen, _sorry in advance_.<br/>
