@@ -11,7 +11,6 @@ If I have "W2I" in my nick, that means I'm offtab; if you whisper, there's a hig
 <br/>
 <br/>
 <br/>
-![Ranpo mymalewife.](https://cdn.discordapp.com/attachments/1115694374672662630/1306007377438441592/Untitled2373_20241112222643.png?ex=6735c267&is=673470e7&hm=e41a346f1edbb1d84912a5854067c1ed401d0560fb655cfc157b723006fb3ea8&)
 <br/>
 <br/>
 # PoeRan brainrot...............!
