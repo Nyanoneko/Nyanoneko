@@ -14,7 +14,7 @@
 </div>
   <p align="center">
 $\color{#634E68}☓$ people below 13 <br>
-$\color{#634E68}☓$ racist, homophobes, transphobes, etc. <br>
+$\color{#634E68}☓$ racists, homophobes, transphobes, etc. <br>
 $\color{#634E68}☓$ proshippers, darkshippers <br>
 $\color{#634E68}☓$ souheki, chuuran, mushiranpoe shippers <br>
 $\color{#634E68}☓$ fanon PoeRan likers <br>
