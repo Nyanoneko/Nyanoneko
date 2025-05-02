@@ -6,7 +6,7 @@
   
 <img src="https://github.com/user-attachments/assets/8506c8cc-0238-4fdd-956e-b405522945ea" width="450">
 <p align="center">
-  <a href="https://pronouns.cc/@nyanoneko">pronouns page</a> $\color{#634E68}★$ <a href="https://nyanoneko.atabook.org/">atabook</a>
+  <a href="https://pronouns.cc/@nyanoneko">pronouns page</a> $\color{#634E68}★$ <a href="[https://nyanoneko.atabook.org/](https://rentry.co/nyanoneko)">rentry</a> $\color{#634E68}★$ <a href="https://nyanoneko.atabook.org/">atabook</a>
 </p>
 <div align="center">
   
