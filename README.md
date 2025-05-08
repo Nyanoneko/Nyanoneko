@@ -1,6 +1,6 @@
 <div align="center">
   
-### $\color{#634E68}🪶ᛝ「The Guild's」 Master Architect .ᐟ $
+### 🪶 $\color{#634E68}ᛝ$ 「組合」設計者長.ᐟ
 </div>
 <p align="center">
   
